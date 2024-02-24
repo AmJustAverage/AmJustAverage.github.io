@@ -1,1 +1,0 @@
-# AmJustAverage.github.io
